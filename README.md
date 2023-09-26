@@ -1,0 +1,2 @@
+# Trust
+Trust wallet scam
